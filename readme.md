@@ -24,6 +24,8 @@ FIANL 30% 如果学的比较扎实的话，失误容错比较高，我失误了�
 
 
 
+BOOK在下面百度网盘里，可以下载这个，也可以自行下载zlibrary里的。
+https://pan.baidu.com/s/1ldes52AEtVOelujiPCEaHg?pwd=zhtz
 
 
 
